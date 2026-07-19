@@ -1,6 +1,6 @@
 <div align="center">
 
-# ✦ AURÉA ✦
+AURÉA
 
 ### *Elegance Is An Attitude*
 
