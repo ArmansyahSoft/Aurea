@@ -4,7 +4,7 @@ AURÉA
 
 ### *Elegance Is An Attitude*
 
-Landing page untuk brand fashion mewah AURÉA — di mana setiap piksel dirancang dengan kepekaan yang sama seperti setiap jahitan pada koleksinya.
+Landing page untuk brand fashion mewah AURÉA di mana setiap piksel dirancang dengan kepekaan yang sama seperti setiap jahitan pada koleksinya.
 
 </div>
 
